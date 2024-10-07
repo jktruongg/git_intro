@@ -1,1 +1,2 @@
 Jacqueline Truong
+truojacq@oregonstate.edu
